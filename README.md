@@ -1,6 +1,6 @@
 # Aloowww.... you can call me myu, because watashi kawaii-dess :3
 ![](https://cdn.discordapp.com/emojis/817264274636275733.webp?size=96&animated=true)![](https://cdn.discordapp.com/emojis/817264274636275733.webp?size=96&animated=true)![](https://cdn.discordapp.com/emojis/817264274636275733.webp?size=96&animated=true)![](https://cdn.discordapp.com/emojis/817264274636275733.webp?size=96&animated=true)
-![](https://cdn.discordapp.com/emojis/817264274636275733.webp?size=96&animated=true)![](https://cdn.discordapp.com/emojis/817264274636275733.webp?size=96&animated=true)![](https://cdn.discordapp.com/emojis/817264274636275733.webp?size=96&animated=true)![](https://cdn.discordapp.com/emojis/817264274636275733.webp?size=96&animated=true)
+![](https://cdn.discordapp.com/emojis/817264274636275733.webp?size=96&animated=true)![](https://cdn.discordapp.com/emojis/817264274636275733.webp?size=96&animated=true)
 
 
 
