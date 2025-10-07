@@ -20,11 +20,9 @@
 ![My Skills](https://skillicons.dev/icons?i=html,python,js,premiere,photoshop,vscode,docker,github,discord,bots&perline=6&theme=dark)
 
 ---
-![](https://github-readme-stats.vercel.app/api?username=myukaime&theme=one_dark_pro&hide_border=false&include_all_commits=false&count_private=false)<br/>
+![](https://github-readme-stats.vercel.app/api/top-langs/?username=myukaime&layout=compact&theme=one_dark_pro&show_icons=true)<br/>
 ![](https://nirzak-streak-stats.vercel.app/?user=myukaime&theme=one_dark_pro&hide_border=false)<br/>
 
-
-[![](https://visitcount.itsvg.in/api?id=myukaime&icon=5&color=0)](https://visitcount.itsvg.in)
 
 ![rikka-takanashi-anime](https://github.com/user-attachments/assets/d2f13bd1-a12d-4b71-afec-e01712541c00)
 
